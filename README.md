@@ -15,7 +15,7 @@ With nearly **three years of experience**, I specialize in **problem-solving, te
 ## 📫 Connect With Me  
 🔗 **LinkedIn:** [Olivier Dusabamahoro](https://www.linkedin.com/in/olivier-dusa/)  
 🐦 **X (Twitter):** [@luckdus](https://x.com/luckdus)  
-🌍 **Website:** olivierdusa.me
+🌍 **Website:** [Olivier Dusabamahoro](https://www.olivierdusa.me) 
 
 ⚡ **Fun Fact:** I turn **complex tech problems** into **simple solutions** (and memes sometimes too! 😆)  
 
